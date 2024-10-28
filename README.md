@@ -1,6 +1,6 @@
 ### Hi, My name is Ryan! 👋
 
-🤖 Data Science Intern at Hortifrut Imports<br/>
+🤖 Actively Seeking Opportunities in Data Science<br/>
 👨🏽‍🎓 Masters in Applied and Industrial Mathematics with a concentration in Differential Equations<br/>
 👨🏽‍🎓 Bachelors in Applied Mathematics with a concentration in Physics<br/>
 🏌🏽‍♂️ Former Division I college golfer at [Towson University](https://towsontigers.com/sports/mens-golf/roster/ryan-peters/20648) and [Stetson University](https://gohatters.com/sports/mens-golf/roster/ryan-peters/10667)
